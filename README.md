@@ -1,0 +1,1 @@
+The files stored in this repository are representative teaching materials I have produced. All files may be freely used in classroom settings. Please contact me if any files will be used for purposes besides student education 
